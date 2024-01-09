@@ -1,5 +1,5 @@
 - hi, I’m @heinrichbuys
-- interested in music, sports (F1, cricket, tennis etc)
+- interested in anything music realted, sports (F1, cricket, tennis etc) , games (mainly valorant and apex) and sleep
 - currently learning biostatistics
 
 - Fun fact: i have an obsession with spiderman
